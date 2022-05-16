@@ -1,4 +1,3 @@
-##My Digital CV
 Jeffrey Wang
 (905) 805-1041 | wjeffrey451@protonmail.com | https://wjeffrey451.github.io/about/
 
